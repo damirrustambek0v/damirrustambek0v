@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about : IQ 200
 - 📫 How to reach me: damirbekrustambekov ; damir
 - 😄 Pronouns: 
-- ⚡ Fun fact: FUTBALL ![image](https://github.com/user-attachments/assets/28c78d3d-75c5-4697-bf73-e6d46db4cba7)
+- ⚡ Fun fact: FUTBALL 
 
 
 
