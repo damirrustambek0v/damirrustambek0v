@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on :project
 - 🌱 I’m currently learning :python
-- 💬 Ask me about : IQ 200
+- 💬 Ask me about : IQ 163
 - 📫 How to reach me: damirbekrustambekov ; damir
 - 😄 Pronouns: 
 - ⚡ Fun fact: FUTBALL 
